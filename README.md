@@ -1,0 +1,2 @@
+# Tugas.saya
+Syahrul Gunawan
